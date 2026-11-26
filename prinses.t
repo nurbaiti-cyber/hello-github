@@ -1,0 +1,1 @@
+omg aku menemukan arah 
